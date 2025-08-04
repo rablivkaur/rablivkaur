@@ -31,7 +31,7 @@ Check out more in my [repositories](https://github.com/rablivkaur?tab=repositori
 
 ## 📬 Contact Me
 - 📧 Email: [rablivkhurana@gmail.com](mailto:rablivkhurana@gmail.com)   
-- 💼 LinkedIn: [[linkedin.com/in/](https://www.linkedin.com/in/rabliv-khurana-54151b297?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)]  
+- 💼 LinkedIn: [[linkedin.com/in/](https://www.linkedin.com/in/rablivkaur?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)]  
 - 🌐 Portfolio: [your-portfolio-link.com](https://your-portfolio-link.com)  
 
 ---
